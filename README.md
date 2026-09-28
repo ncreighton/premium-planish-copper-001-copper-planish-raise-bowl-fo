@@ -1,0 +1,2 @@
+# premium-planish-copper-001-copper-planish-raise-bowl-fo
+Tired of losing track of your copper bowl forms, planishing techniques, and raise sequences across scattered notebooks and emails? The Copper Planish &amp; Raise Bowl Form Craft Hub consolidates everything metalworkers need into one organized, searchable Notion workspace.  This isn't just another template—it's a complete craft management system designe
